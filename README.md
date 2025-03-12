@@ -3,7 +3,7 @@
 **Address**: 2no Kashipur, Billobari, Barishal sadar, Barishal-8205  
 **Phone**: +8801726252225 
 **Email**: bappyhabib283@gmail.com  
-**GitHub**: [Habib Bappy]([https://github.com/sbiitju](https://github.com/Habib-Bappy-1996))  
+**GitHub**: [Habib Bappy](https://github.com/Habib-Bappy-1996)
 **LinkedIn**: [Habib Bappy](https://www.linkedin.com/in/habibur-rahman-99aa83129/)  
 **Date of Birth**: 17/06/1996  
 **NID**: 1453957027  
